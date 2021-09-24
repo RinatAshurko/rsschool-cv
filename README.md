@@ -1,1 +1,0 @@
-https://github.com/RinatAshurko/rsschool-cv
